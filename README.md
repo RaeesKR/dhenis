@@ -1,1 +1,1 @@
-teddy ubah
+udah di ubah ya
